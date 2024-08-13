@@ -1,7 +1,7 @@
 # Akbar Raen
 
 **Navi Mumbai**  
-Contact: +91 8655021033 | LinkedIn | GitHub  
+Contact: +91 8655021033 | [LinkedIn](http://linkedin.com/in/akbarraen) | [GitHub Gists](https://gist.github.com/akbarraen) 
 Email: akbarraen7@gmail.com  
 
 ---
