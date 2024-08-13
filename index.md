@@ -72,7 +72,7 @@ To work for an organization that provides me the opportunity to improve my skill
 
 ## Certifications
 - **AWS Certified Solutions Architect – Associate**  
-  [Certification Link](https://www.youracclaim.com/badges/61dac802-fe9d-4ab8-b470-)
+  [Certification Link](https://www.credly.com/badges/61dac802-fe9d-4ab8-b470-d395fc162ed9)
 
 ---
 
