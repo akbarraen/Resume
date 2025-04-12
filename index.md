@@ -77,6 +77,5 @@ To work for an organization that provides me the opportunity to improve my skill
 ---
 
 ## Personal Information
-- **Date of Birth**: 1st January 1996
 - **Languages Known**: English, Hindi, Marathi
 - **Hobbies**: Gaming, Cooking
